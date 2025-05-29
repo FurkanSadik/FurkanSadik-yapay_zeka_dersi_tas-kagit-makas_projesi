@@ -1,0 +1,1 @@
+# FurkanSadik-yapay_zeka_dersi_tas-kagit-makas_projesi
